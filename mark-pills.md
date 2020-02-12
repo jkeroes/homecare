@@ -5,6 +5,7 @@
 Pills are taken every 3 hours from 6am to 9pm with an optional dose in the wee hours. 
 
 - Dosing:
+    - IMPORTANT: there is finasteride in some of the doses. This may cause birth defects when touched by pregnant women. Do not touch.
     - The two big doses (the 6am and 9pm) should be served on a plastic spoon with applesauce.
     - The smaller doses should be transferred to a small clamshell case and then  taken with tea or water.
 - Pill container locations:
