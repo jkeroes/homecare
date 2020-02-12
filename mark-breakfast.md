@@ -23,7 +23,10 @@
     1. Let steep ~4 minutes.
     1. Serve with teaspoon.
     1. Refills may need to be warmed in microwave.
-1. Breakfast:
+1. Fruit:
+    1. This may be served immediately.
+    1. e.g. orange, banana, etc.
+1. Breakfast (protein):
     1. Should be served no less than 30 minutes after taking 6am pills!
     1. Serve biscotti from pantry to left of fridge.
     1. Make toast. Use Toaster setting 4 for sweet bread or 5 for regular bread.
