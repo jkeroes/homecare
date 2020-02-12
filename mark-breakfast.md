@@ -29,5 +29,5 @@
 1. Breakfast (protein):
     1. Should be served no less than 30 minutes after taking 6am pills!
     1. Serve biscotti from pantry to left of fridge.
-    1. Make toast. Use Toaster setting 4 for sweet bread or 5 for regular bread.
+    1. Make toast. Use Toaster setting 5 to actually brown the bread.
     1. Serve toast with marmalade (from fridge) and knife.
