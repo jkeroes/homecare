@@ -13,7 +13,7 @@
 
 ## Showertime
 
-1. Get undressed (see Bedtime document)
+1. Get undressed (see [Bedtime] document)
 1. Mark gets in, turn shower on, adjust temp.
 1. Follow Mark into the shower entryway.
 1. Remove handheld showerhead and wet Mark head to toe. Drop handshower, turning the head so you don't get sprayed.
@@ -25,7 +25,7 @@
 
 1. Towel off while sitting on stool.
 1. Move to bedroom.
-1. Get dressed (see Getting Up document)
+1. Get dressed (see [Getting Up] document)
 
 ## After
 

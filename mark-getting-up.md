@@ -4,11 +4,13 @@
 
 ### Dress Prep (do night before)
 
-1. Get collared polo shirt from hanger in closet.
-1. Get black 2XL Reebok sweatpants from cubby in closet.
-1. Get 2XL boxers from top left dresser drawer.
-1. Get black socks from top right desser drawer.
-1. Stage on chair beside dresser.
+Stage the following on bedroom chair beside dresser:
+
+1. Collared polo shirt from hanger in closet.
+1. Black 2XL Reebok sweatpants from cubby in closet.
+1. 2XL boxers from second-to-top left dresser drawer.
+1. Black socks from second-to-top right desser drawer.
+
 1. Ensure that the walker is next to bed's grab bar, angled toward bed.
 
 ### Pill Prep (do day-of)
@@ -32,7 +34,8 @@
 1. Apply Neupro patch. These switch sides every day and should be moved around. Discard old patch.
 1. Dress:
     1. Shirt. Arms first.
-    1. Boxers. Pull up to knee. Mark will sit up using walker. Pull up all the way.
+    1. Glasses.
+    1. Boxers. Pull up to knee. Mark will stand up using walker. Pull up all the way.
     1. Pants. Same as above. Tuck shirt into pants.
     1. Socks.
     1. Shoes. Black with one velcro strap preferred.

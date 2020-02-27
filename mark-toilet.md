@@ -4,12 +4,12 @@
 
 1. Turn on lights by Richele's sink.
 1. Turn on lights in toilet closet.
-1. Push wheelchair toward bathroom pointed toward the left door jamb.
+1. Push wheelchair toward bathroom closet's left door jamb.
 1. Engage wheel locks.
 1. Mark will use the jamb to stand up.
 1. Move wheelchair out of the way.
 1. Pull down pants and boxers.
-1. Mind your business.
+1. Mind your business within earshot.
 
 ## After
 

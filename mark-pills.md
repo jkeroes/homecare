@@ -5,20 +5,20 @@
 Pills are taken every 3 hours from 6am to 9pm with an optional dose in the wee hours. 
 
 - Dosing:
-    - IMPORTANT: there is finasteride in some of the doses. This may cause birth defects when touched by pregnant women. Do not touch.
+    - *IMPORTANT*: there is finasteride in some of the doses. This may cause birth defects when touched by pregnant women. Do not touch.
     - The two big doses (the 6am and 9pm) should be served on a plastic spoon with applesauce.
-    - The smaller doses should be transferred to a small clamshell case and then  taken with tea or water.
+    - The smaller doses should be transferred to a small clamshell case and then taken with tea or water.
 - Pill container locations:
-    - 6 am: bedroom dresser
-    - 9 am: bathroom counter
-    - 12pm: bathroom counter
-    - 3 pm: bathroom counter
-    - 6 pm: bathroom counter
-    - 9 pm: bathroom counter
+    - 5:30-6:00am: bedroom dresser
+    - 9:00am: bathroom counter
+    - 12:00pm: bathroom counter
+    - 3:00pm: bathroom counter
+    - 6:00-6:30pm: bathroom counter
+    - 9:00pm: bathroom counter
     - ? am: bedroom dresser
     - The clamshell cases - each big enough for a single dose - are located against the wall on the left side of the bathroom counter. Some containers have times printed on them (eg 9am, noon, 3pm).
 - Applesauce:
-    - Previously-opened applesauce is stored with a spoon in the fridge.
+    - Previously-opened applesauce is stored with a plastic spoon in the fridge.
     - New applesauce is located in the pantry to the left of the fridge.
     - New plastic spoons are located in the drawer under the toaster.
 

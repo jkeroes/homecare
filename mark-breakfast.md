@@ -17,14 +17,14 @@
 ## Breakfast
 
 1. Tea:
-    1. This may be served immediately.
+    1. This may be served immediately after taking pills.
     1. Pour hot water to make tea.
     1. Add one slightly rounded tablespoon of tea to strainer.
     1. Let steep ~4 minutes.
     1. Serve with teaspoon.
     1. Refills may need to be warmed in microwave.
 1. Fruit:
-    1. This may be served immediately.
+    1. This may be served immediately after taking pills.
     1. e.g. orange, banana, etc.
 1. Breakfast (protein):
     1. Should be served no less than 30 minutes after taking 6am pills!
